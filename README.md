@@ -5,4 +5,5 @@ _This is my profile for the computational thinking subject of 2024_
 ![Escola onde eu estudo](https://m.facebook.com/groups/cesfcampolargo/announcements/)
 
 _Esse é o meu perfil focado para estudos e divulgaçao de projetos, e algumas coisas ilicitas hehe_
-![bf393583ae9c2aec37940220660bdbb6](https://github.com/user-attachments/assets/141a5aab-d674-40ec-b4a5-df2abbf9f2f7)
+
+![Capa_Discord-desobedece-as-proprias-regras-e-permite-conteudo-violento-e-extremista](https://github.com/user-attachments/assets/e70c20a9-32b5-4581-afc1-cfd7984dfcca)
