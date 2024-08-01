@@ -1,4 +1,3 @@
 _This is my profile for the computational thinking subject of 2024_
 
-###https://www.google.com/url?sa=i&url=https%3A%2F%2Ftenor.com%2Fview%2Fsnow-soldier-gif-27489017&psig=AOvVaw27yudF47vbm8DD_EAxQRNn&ust=1722609620546000&source=images&cd=vfe&opi=89978449&ved=0CA4QjRxqFwoTCOiKj4aD1IcDFQAAAAAdAAAAABAJ
-
+![thumbs-up-11th-airborne-division](https://github.com/user-attachments/assets/e181f0c8-5784-449e-a1f4-d766d25da5de)
